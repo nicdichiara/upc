@@ -1,2 +1,2 @@
-University Program Council - Auburn University
+University Program Council, Auburn University
 ===
